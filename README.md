@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @giorodri4
+- 👋 Hi, I’m Giovanna
 - 🌱 I’m currently pursuing a MBA with a concentration in Data Analytics.
 - 📫 How to reach me: Rodriguez.GiovannaJ@gmail.com
 - 😄 Pronouns: She/Her
